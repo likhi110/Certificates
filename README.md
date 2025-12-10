@@ -1,0 +1,1 @@
+Successfully completed a 6-week online certified training on Prompt Engineering for Generative AI. Covered advanced prompting concepts, AI applications across technology, digital marketing, HR, design, professional growth, and ethical AI. Achieved Top Performer status.
